@@ -1,4 +1,4 @@
-♚Life Style: I learn a lot, but the more I learn, the less I learn.
+♚Lifestyle: I learn a lot, but the more I learn, the more I learn that I don't know
 
 ✔Introduce Myself: My name is Mahdi. I am a university student and interested in Computer Engineering.
 To be honest, I do not have a clear area, but I am more inclined towards game structure and artificial intelligence.
